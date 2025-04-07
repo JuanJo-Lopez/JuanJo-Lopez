@@ -1,5 +1,5 @@
 ## Hello, my name is Juan Jo. López 👋
-<img src="https://github.com/user-attachments/assets/b26a7805-7be2-4faf-a6c7-735e2d4a4a9f">
+<img src="https://github.com/user-attachments/assets/86451cb8-2ec7-4dc9-8cf5-0e3148f8d6b2">
 
 ## 🎯 About Me
 
